@@ -1,0 +1,2 @@
+# postgraduate-D44
+Today, I went back to school. It seems that the number of people in the school has decreased a lot. But why are there so many people in the library? It makes me feel very uncomfortable. I found a seat that I like most. I'm surprised that no one went to that seat. I have a hunch that the disgusting person won't be sitting on this table. After a while, I didn't expect that the disgusting person sat next to me. Alas, I had to ask the teacher to sign my name. It was so troublesome. I had a lot of things to deal with.
